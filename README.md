@@ -1,3 +1,3 @@
-# KING GAMES MODS
+# MODS
 
 
